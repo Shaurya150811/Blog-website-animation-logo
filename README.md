@@ -1,1 +1,1 @@
-# Blog-website-animation-logo
+# Design-thinking-blog-exercise
